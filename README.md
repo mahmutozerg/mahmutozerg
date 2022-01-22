@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-CSE junior student
+CSE  student
